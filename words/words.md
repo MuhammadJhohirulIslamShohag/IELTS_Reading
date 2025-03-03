@@ -16,3 +16,17 @@
 | daunting   |  unsetting, formidable  |
 | endeavour   |  aim, try, effort  |
 | pioneer   |  a person or group that originates  |
+
+### Cambridge 15 Test 02
+
+| **Action**   | **Synonym**      |
+|--------------|------------------|
+|   Appealing     | attractive or interesting, tempting |
+|   proposing     | Not endorsing, Not presenting, Not offering, Not advocating, Not putting forward, Not recommending, Not suggesting |
+|   Improve     | enhance, boost, advanced, develop, upgrade, optimize, Augment, Strengthen |
+|   Movement     | shift, motion, transfer, change, transition |
+|   Ensuring     | Guaranteeing, Securing, Maintaining, Assuring, Confirming |
+|   disrupted     | Disturbed, Interrupted, Upset, Interrupted, Destabilized |
+|   unintended     | unexpected, chance, unplanned |
+|   Fewer      | Lower, Reduced, Smaller, Weaker, Less |
+|   separate      | divide, split, partition, distinct, disconnected |

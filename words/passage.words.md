@@ -25,3 +25,22 @@
 | to select    | choosing   |
 | these can most probably be conquered    | overcome a number of problems   |
 | within the next 10 years    | an estimate of how long it will take   |
+
+### Cambridge 15 Test 02
+
+| **Action**   | **Synonym**      |
+|--------------|------------------|
+| Way of using dance    |  Method of performing dance, Approach to dance, Style of dancing, Manner of dancing, Technique in dance, Form of dance expression |
+| Solution to    |  Improve |
+| pedestrian safety    |  safety of pedestrians |
+| smooth flow of traffic    |  movement of ……traffic |
+| crossing points    |  encouraged to cross |
+| one for each carriageway    |  to cross one ……… carriageway |
+| they divide communities    |  separate |
+| decrease opportunities for healthy transport    |  difficult to introduce forms of transport that are |
+| not to suggest everyone    |  is not proposing |
+| medieval    |  past |
+| now    |  present |
+| the aim of    |  of an objective |
+| failed to take into account    |  unforeseen problem |
+| removed    |  reversed |
