@@ -44,3 +44,43 @@
 | the aim of    |  of an objective |
 | failed to take into account    |  unforeseen problem |
 | removed    |  reversed |
+
+### Cambridge 15 Test 03
+
+| **Action**   | **Synonym**      |
+|--------------|------------------|
+| he discovered the power and beauty    |  Moore became aware of ancient sculpture |
+| no other stone sculpture possessed    |  the Mayan sculpture was NOT similar in certain respects to other stone sculpture |
+| convince    |  popular |
+| 1931 & the following year    |  1930s |
+| calls for    |   to offer |
+| calls for    |   to offer |
+| left    |   leave, depart from, go away from, go from, withdraw from, retire from, exit from |
+| shortage     |    not readily available |
+| focus on drawing     |    turns to drawing |
+| 1942      |   1940s |
+| returned to Castleford       |   visiting his hometown |
+| a series of sketches        |   some drawings |
+| offered Moore a commission        |    Moore is employed |
+| for a sculpture depicting        |    to produce a sculpture of |
+| became available to collectors     |   collectors start to buy |
+| different places, such as the sea, rivers, boreholes and rain     |   a range of sources |
+| purify   |  cleaning water |
+| unlike standard desalination techniques   |   What makes the device different from alternatives |
+|  at least two-thirds of the world’s population   |  the number of people |
+|  severe water scarcity   |  water shortages |
+|  a wide variety of users   |  The range of potential customers |
+|  a social mission   |  non-profit/voluntary/ charitable goal |
+
+
+### Cambridge 16 Test 01
+
+| **Action**   | **Synonym**      |
+|--------------|------------------|
+| there is no question that    |  single certainly |
+| An incredible experience despite the few remains    | to astonish and amaze the archaeologists who excavated it.’ |
+| There was enough left throughout the pyramid    | despite the few remains |
+| would follow   | copied |
+| ancien   | of the past |
+| living quarters    | occupied by |
+| ringed    | encircled |

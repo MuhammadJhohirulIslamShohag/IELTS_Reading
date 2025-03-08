@@ -30,3 +30,14 @@
 |   unintended     | unexpected, chance, unplanned |
 |   Fewer      | Lower, Reduced, Smaller, Weaker, Less |
 |   separate      | divide, split, partition, distinct, disconnected |
+
+### Cambridge 15 Test 03
+
+| **Action**   | **Synonym**      |
+|--------------|------------------|
+|   Aware      | Conscious of, informed of, to know about |
+|   Depict     | Picture, Represent, Illustrate, Outline, Draw, To produce a sculpture of |
+|   inspiration   | innovation, creativity, creative talent, creative skills  |
+|   scarcity    | shortage, lack, want, dearth  |
+|   venture     | risk, journey, go   |
+|   funding      | finance   |
