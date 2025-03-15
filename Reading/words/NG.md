@@ -5,6 +5,7 @@
 | Successful   |   |
 | than   |   |
 | the length of noun   |   |
+| first   |  if not mention |
 
 ### FALSE/NO
 
@@ -12,3 +13,4 @@
 |--------------|------------------|
 | as few noun as   |   |
 | have already been   | done something  |
+| most   | 10%, 20%  |

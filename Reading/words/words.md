@@ -16,6 +16,10 @@
 | daunting   |  unsetting, formidable  |
 | endeavour   |  aim, try, effort  |
 | pioneer   |  a person or group that originates  |
+| surrounds    |  encased  |
+| used to    |  former, past  |
+| known as     |  called  |
+| known as     |  called  |
 
 ### Cambridge 15 Test 02
 
@@ -40,4 +44,5 @@
 |   inspiration   | innovation, creativity, creative talent, creative skills  |
 |   scarcity    | shortage, lack, want, dearth  |
 |   venture     | risk, journey, go   |
+|   funding      | finance   |
 |   funding      | finance   |
