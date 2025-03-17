@@ -6,6 +6,7 @@
 | than   |   |
 | the length of noun   |   |
 | first   |  if not mention |
+| some   |  if not mention |
 
 ### FALSE/NO
 
