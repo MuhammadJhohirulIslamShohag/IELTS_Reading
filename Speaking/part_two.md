@@ -1,5 +1,86 @@
 ## Cue Card
 
+----------------------------------------------------------------------------------------------------------------------------------------
+----------------------------------------------------------------------------------------------------------------------------------------
+#### Describe a person whom you like very much or admire most we should say. 
+
+# Who is he? Who the person is?
+- **Prophet Muhammad (ﷺ)** is the final messenger of Allah and a role model for humanity.  
+
+# What is the relationship to you?
+- **Spiritual guide**: Prophet Muhammad (ﷺ) is my spiritual leader and source of divine guidance.  
+- **Role model**: He is the perfect example of how to live a righteous life.  
+- **Source of inspiration**: He inspires me to be a better person every day.  
+
+# What does he do now?
+- **Teaches through teachings**: His teachings continue to guide millions worldwide.  
+- **Guides morally and spiritually**: He provides moral and spiritual direction in my life.  
+
+# How long have you known him?
+- **Through faith and teachings**: I have known about Prophet Muhammad (ﷺ) since I embraced Islam.  
+
+# How did you meet him?
+- **Through Islamic faith and learning**: I came to know Prophet Muhammad (ﷺ) through studying Islam and the Quran.  
+
+# What does he do for you to become a successful person?
+- **Teaches patience and perseverance**: His life teaches me to stay patient and persistent in difficult times.  
+- **Provides wisdom and guidance**: He offers wisdom that helps me make better decisions.  
+- **Instills values and morals**: He has shaped my character and principles.  
+
+# Why do you admire him so much?
+- **Compassionate**: He showed immense compassion toward others.  
+- **Selfless**: He always put others’ needs before his own.  
+- **Wise**: His wisdom guides me in every aspect of life.  
+- **Resilient**: He demonstrated strength in the face of challenges.  
+- **Loving**: His love for humanity was pure and unconditional.  
+- **Forgiving**: He taught the importance of forgiveness.  
+- **Inspirational**: His life inspires me to strive for greatness.  
+- **Humble**: Despite his greatness, he remained humble.  
+- **Strong character**: He embodied integrity and strength.  
+- **Devoted to others**: He was dedicated to helping and serving others.  
+- **Role model for humanity**: He set an example for all of humanity.  
+- **Source of strength**: He gives me the strength to overcome obstacles.  
+
+----------------------------------------------------------------------------------------------------------------------------------------
+----------------------------------------------------------------------------------------------------------------------------------------
+#### Describe a person whom you like very much or admire most we should say. 
+
+# Who is she? Who the person is?
+- **Mother** is the most caring and selfless person in my life.  
+
+# What is the relationship to you?
+- **Parent**: My mother is my first teacher and protector.  
+- **Source of inspiration**: She inspires me to be a better person every day.  
+
+# What does she do now?
+- **Supports and nurtures**: My mother always supports me emotionally and physically.  
+- **Provides unconditional love**: Her love is endless and unwavering.  
+
+# How long have you two known each other?
+- **Lifetime**: I have known my mother since the day I was born.  
+
+# How did you two meet?
+- **Born into her care**: I met my mother the moment I entered this world.  
+
+# What does she do for you to become a successful person?
+- **Encourages and sacrifices**: My mother sacrifices her own comfort to ensure my success.  
+- **Provides wisdom and guidance**: She offers wisdom that helps me make better decisions.  
+- **Instills values and morals**: She has shaped my character and principles.  
+
+# Why do you admire her so much?
+- **Compassionate**: She shows immense compassion toward others.  
+- **Selfless**: She always puts others’ needs before her own.  
+- **Wise**: Her wisdom guides me in every aspect of life.  
+- **Resilient**: She has shown strength in the face of challenges.  
+- **Loving**: Her love is pure and unconditional.  
+- **Forgiving**: She teaches me the importance of forgiveness.  
+- **Inspirational**: Her life inspires me to strive for greatness.  
+- **Humble**: Despite her greatness, she remains humble.  
+- **Strong character**: She embodies integrity and strength.  
+- **Devoted to others**: She is dedicated to helping and serving others.  
+- **Role model**: She sets an example for me and others.  
+- **Source of strength**: She gives me the strength to overcome obstacles.  
+
 ### Describe an admirable sports person, we should say. 
 
 ## Hashim Amla: A Legendary Cricketer
@@ -122,8 +203,12 @@ She cooks for everyone who enters her life. Primarily, she nourishes our **famil
 My **mother's** love language is food. She finds immense joy in the act of creating and **sharing** a meal. For her, cooking is an expression of **love**, a way to show **care** and affection. It's a **cultural** **tradition** she deeply respects, a way to connect with others and bring them **happiness**. She delights in the smiles and shared moments that come with a delicious meal, seeing it as a form of **generosity** and a **creative** outlet.
 
 I feel an overwhelming sense of **gratitude** and **appreciation** for my **mother**. Her **dedication** and **selfless** nature **inspire** me daily. Her cooking brings a sense of **comfort** and warmth that is irreplaceable, making me feel incredibly **loved** and **fortunate**. I deeply **respect** her passion and **admire** her ability to create **happiness** through her culinary creations. She is truly a remarkable person, and I feel incredibly **lucky** to have her in my life.
+
 ------------------------------------------------------------------------------------------------------------
 -----------------------------------------------------------------------------------------------------------
+
+### Describe your favourite author, we should say. 
+
 ## Imam Muhammad al-Bukhari: A Beacon of Islamic Knowledge
 
 **Who is he?**
@@ -182,6 +267,8 @@ I respect him for his **integrity** and **commitment** to truth. His **dedicatio
 
 ----------------------------------------------------------------------------------------------------------------------------------------
 ----------------------------------------------------------------------------------------------------------------------------------------
+#### Describe someone who you admire who is much older than you. Talk about a senior person whom you like a lot. Describe your childhood hero. we should say.
+
 ## My Grandfather: A Pillar of Strength and Wisdom
 
 **Who is he?**
@@ -330,6 +417,8 @@ I like my **grandfather** because of his **unconditional love** and the **respec
 
 -------------------------------------------------------------------------------------------------------------------------------------
 -------------------------------------------------------------------------------------------------------------------------------------
+### Describe your favourite pilitical leader, we should say. 
+
 **Shafiqur Rahman: A Portrait**
 
 **Who is he?**
@@ -387,82 +476,3 @@ He is a true **servant leader** who believes in serving the people first. As a *
 
 # Why do you admire this person so much?
 I admire him for his **principled** actions and his **upright character**. He always **fights for people’s rights** and is **dedicated to justice**. His **positive influence** on society and his role as a **defender of truth** have made him a **symbol of hope** for many. He is **respected by many** for his contributions.
-
-----------------------------------------------------------------------------------------------------------------------------------------
-----------------------------------------------------------------------------------------------------------------------------------------
-
-# Who is he? Who the person is?
-- **Prophet Muhammad (ﷺ)** is the final messenger of Allah and a role model for humanity.  
-
-# What is the relationship to you?
-- **Spiritual guide**: Prophet Muhammad (ﷺ) is my spiritual leader and source of divine guidance.  
-- **Role model**: He is the perfect example of how to live a righteous life.  
-- **Source of inspiration**: He inspires me to be a better person every day.  
-
-# What does he do now?
-- **Teaches through teachings**: His teachings continue to guide millions worldwide.  
-- **Guides morally and spiritually**: He provides moral and spiritual direction in my life.  
-
-# How long have you known him?
-- **Through faith and teachings**: I have known about Prophet Muhammad (ﷺ) since I embraced Islam.  
-
-# How did you meet him?
-- **Through Islamic faith and learning**: I came to know Prophet Muhammad (ﷺ) through studying Islam and the Quran.  
-
-# What does he do for you to become a successful person?
-- **Teaches patience and perseverance**: His life teaches me to stay patient and persistent in difficult times.  
-- **Provides wisdom and guidance**: He offers wisdom that helps me make better decisions.  
-- **Instills values and morals**: He has shaped my character and principles.  
-
-# Why do you admire him so much?
-- **Compassionate**: He showed immense compassion toward others.  
-- **Selfless**: He always put others’ needs before his own.  
-- **Wise**: His wisdom guides me in every aspect of life.  
-- **Resilient**: He demonstrated strength in the face of challenges.  
-- **Loving**: His love for humanity was pure and unconditional.  
-- **Forgiving**: He taught the importance of forgiveness.  
-- **Inspirational**: His life inspires me to strive for greatness.  
-- **Humble**: Despite his greatness, he remained humble.  
-- **Strong character**: He embodied integrity and strength.  
-- **Devoted to others**: He was dedicated to helping and serving others.  
-- **Role model for humanity**: He set an example for all of humanity.  
-- **Source of strength**: He gives me the strength to overcome obstacles.  
-
-----------------------------------------------------------------------------------------------------------------------------------------
-----------------------------------------------------------------------------------------------------------------------------------------
-
-# Who is she? Who the person is?
-- **Mother** is the most caring and selfless person in my life.  
-
-# What is the relationship to you?
-- **Parent**: My mother is my first teacher and protector.  
-- **Source of inspiration**: She inspires me to be a better person every day.  
-
-# What does she do now?
-- **Supports and nurtures**: My mother always supports me emotionally and physically.  
-- **Provides unconditional love**: Her love is endless and unwavering.  
-
-# How long have you two known each other?
-- **Lifetime**: I have known my mother since the day I was born.  
-
-# How did you two meet?
-- **Born into her care**: I met my mother the moment I entered this world.  
-
-# What does she do for you to become a successful person?
-- **Encourages and sacrifices**: My mother sacrifices her own comfort to ensure my success.  
-- **Provides wisdom and guidance**: She offers wisdom that helps me make better decisions.  
-- **Instills values and morals**: She has shaped my character and principles.  
-
-# Why do you admire her so much?
-- **Compassionate**: She shows immense compassion toward others.  
-- **Selfless**: She always puts others’ needs before her own.  
-- **Wise**: Her wisdom guides me in every aspect of life.  
-- **Resilient**: She has shown strength in the face of challenges.  
-- **Loving**: Her love is pure and unconditional.  
-- **Forgiving**: She teaches me the importance of forgiveness.  
-- **Inspirational**: Her life inspires me to strive for greatness.  
-- **Humble**: Despite her greatness, she remains humble.  
-- **Strong character**: She embodies integrity and strength.  
-- **Devoted to others**: She is dedicated to helping and serving others.  
-- **Role model**: She sets an example for me and others.  
-- **Source of strength**: She gives me the strength to overcome obstacles.  
